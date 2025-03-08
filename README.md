@@ -1,0 +1,1 @@
+# slowniczek_pl-kdom.tk
